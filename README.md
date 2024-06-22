@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Computer Engineering
 - 💞️ I’m looking to collaborate on Games
-- 📫 How to reach me, Email:bb1293354@gmail.com
+- 📫 How to reach me, Email: bb1293354@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: i started coding when i was 6 years old
 
